@@ -5,4 +5,4 @@ This repository will be used to share the final project of Corporate Strategy 20
 # Ressources
 Strategor - 9e édition : https://amzn.to/4ky3yH5
 
-French vidz : https://youtu.be/y9I0W1930FE?si=MB-I8iIjOfGNmHrL
+French vidz : [https://youtu.be/y9I0W1930FE?si=MB-I8iIjOfGNmHrL](https://youtube.com/playlist?list=PLyEVRAPdBGn0QiHYdsJ_IzcSHT7CA7pjC&si=JcXh-dlBlEbbyZT5)
