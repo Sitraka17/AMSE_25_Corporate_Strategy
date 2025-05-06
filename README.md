@@ -1,6 +1,6 @@
 # AMSE_25_Corporate_Strategy
 
-This repository will be used to share the final project of Corporate Strategy 2025. 
+This repository will be used to share the final project of Corporate Strategy 202X. 
 
 # Ressources
 Strategor - 9e édition : https://amzn.to/4ky3yH5
@@ -12,3 +12,6 @@ French vidz : [Centrale Lille](https://youtube.com/playlist?list=PLyEVRAPdBGn0Qi
 
 
 https://youtu.be/k9G7HyNeYFs?si=m9Ieo12ODTRe_JTf
+
+
+“Pour ce qui est de l'avenir, il ne s'agit pas de le prévoir, mais de le rendre possible.” St Exupery
