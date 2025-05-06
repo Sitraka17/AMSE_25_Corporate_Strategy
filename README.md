@@ -9,3 +9,6 @@ French vidz : [Centrale Lille](https://youtube.com/playlist?list=PLyEVRAPdBGn0Qi
 
 
 “L’auto qui n’existait pas - Management des projets et transformation de l’entreprise” de Christophe Midler
+
+
+https://youtu.be/k9G7HyNeYFs?si=m9Ieo12ODTRe_JTf
