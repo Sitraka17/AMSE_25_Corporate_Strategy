@@ -14,4 +14,4 @@ French vidz : [Centrale Lille](https://youtube.com/playlist?list=PLyEVRAPdBGn0Qi
 https://youtu.be/k9G7HyNeYFs?si=m9Ieo12ODTRe_JTf
 
 
-“Pour ce qui est de l'avenir, il ne s'agit pas de le prévoir, mais de le rendre possible.” St Exupery
+“Pour ce qui est de l'avenir, il ne s'agit pas (uniquement) de le prévoir, mais de le rendre possible.” St Exupery
